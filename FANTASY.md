@@ -1,0 +1,12 @@
+------------------------------
+🎯 Welcome to Jeeto-92 Guide!
+🔥 Win Daily with Trusted Platform
+
+[ How It Works ]
+👉 Register using our link to get bonus!
+
+[ Login ]    [ Sign Up ]
+
+💡 Tips & Tricks
+📞 Contact Support (WhatsApp)
+------------------------------
